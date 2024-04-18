@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Sanskriti</h1>
+<h1 align="center">Hey people , I'm Sanskriti</h1>
 <h3 align="center">Developing Websites | Learning to develop Apps</h3>
 
 - 🔭 I’m currently working on **Making more web dev projects.**
