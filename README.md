@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **Making meaningful connections.**
 
-- 📫 How to reach me **Linkedin : https://www.linkedin.com/in/sanskriti-986a6a29b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app Email : sankovss085@gmail.com**
+- 📫 How to reach me ** Email : sanskriti03070@gmail.com**
 
 - ⚡ Fun fact **The Universe's average colour is called 'Cosmic latte'**
 
