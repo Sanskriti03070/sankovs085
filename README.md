@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Linkedin : https://www.linkedin.com/in/sanskriti-986a6a29b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app Email : sankovss085@gmail.com**
 
-- ⚡ Fun fact **My code DOESN’T work, I have no idea why. My code WORKS, I have no idea why.**
+- ⚡ Fun fact **The Universe's average colour is called 'Cosmic latte'**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
